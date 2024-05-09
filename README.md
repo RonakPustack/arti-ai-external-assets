@@ -1,0 +1,1 @@
+# arti-ai-external-assets
